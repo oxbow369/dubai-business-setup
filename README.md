@@ -1,5 +1,3 @@
-# dubai-business-setup
-Comprehensive guide to business setup in Dubai – covering Mainland, Freezone, and Offshore company formation. Learn about licensing, PRO services, corporate banking, taxation, and Golden Visa solutions. Oxbow Corporate Services helps global entrepreneurs establish and grow in the UAE.
 # Dubai Business Setup Guide
 
 🌟 Your roadmap to starting and growing a business in Dubai.
@@ -24,7 +22,7 @@ Comprehensive guide to business setup in Dubai – covering Mainland, Freezone, 
 
 ---
 
-📍 Based in Business Bay, Dubai – Oxbow Corporate Services LLC offers end-to-end support for entrepreneurs and corporations.
+📍 Based in Business Bay, Dubai – **Oxbow Corporate Services LLC** offers end-to-end support for entrepreneurs and corporations.
 
 👉 **For detailed step-by-step business setup in Dubai, visit our website:**  
-[https://oxbowgcc.com]
+[https://oxbowgcc.com/](https://oxbowgcc.com/)
